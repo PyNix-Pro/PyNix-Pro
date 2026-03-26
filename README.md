@@ -1,5 +1,5 @@
 # 💫 About Me:
-🐧 13yo Gentoo Ricer | Hyprland Enthusiast | 100 Days of Code 🚀 | When offline: Detective Novels & Harry Potter ⚡ | @PyNix-Pro 
+🐧 13yo Gentoo Ricer | Hyprland Enthusiast | 100 Days of Code 🚀 | When offline: Detective Novels & Harry Potter ⚡ | @PyNix-Pro     
 
 
 ## 🌐 Socials:
